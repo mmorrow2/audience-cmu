@@ -2,7 +2,7 @@
 ## Madison Morrow
 
 ### Scrapboook 
-Click Here (/scrapbook.md) for really cool content!
+Click Here(/scrapbook.md) for really cool content!
 
 ### Journal
 Click Here (/journal.md) for my thoughts!

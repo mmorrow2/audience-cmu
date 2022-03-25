@@ -1,5 +1,9 @@
 # Scrapbook
 
+[Home Page](/README.md)
+
+[Journal](/journal.md)
+
 ## Third Place
 
 ### Title 1

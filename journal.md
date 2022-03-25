@@ -1,5 +1,9 @@
 # Journal
 
+[Home Page](/README.md)
+
+[Scrapbook](/scrapbook.md)
+
 ## Week 1
 
 What an exciting start to my LAST mini of graduate school! I can already tell I am going to enjoy this class very much.
@@ -18,5 +22,9 @@ When I was in college, I went to a hotel in the city square for the free wifi. I
 
 This thought really helped me put third spaces into clarity. I also found that the separation I feel from art places is based on numerous factors that contribute to third space. For example, I have never entered a theatre space and felt it to be a third space, because it is always work for me. Museums are unique in that I feel like I have to be quiet and to keep moving. I would love to see more lounge-type areas not only before/after a show, but even when there is not a show running. This could open the doors for really connection with the community, without the pressure of time surroundng the experience.
 
+The second topic we talked about was the Arc of Engagement. Here's a handy picture of it for reference. 
+![Screenshot (357)](https://user-images.githubusercontent.com/98050576/160211355-27688901-a21d-4848-a468-7f49b9d4854f.png)
+
+Something I wanted to cirlce back to was the hypothesis that was posed on whether or not the arc is different for patrons for popular vs. traditional forms of art. I think it is different. And the main example I have as evidence is digital art and public art. There is not a "build up" or "intense preparation" phase, especially when you are just scrolling through social media or walking around. There is still the middle to end of the arc, but no front end.
 
 ## Week 3

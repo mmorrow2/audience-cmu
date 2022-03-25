@@ -2,7 +2,8 @@
 
 ## Week 1
 
-What an exciting start to my LAST mini of graduate school! 
+What an exciting start to my LAST mini of graduate school! I can already tell I am going to enjoy this class very much.
+Something I want to touch on more is the idea of "liveness." The class exercise where we created a scale of where certain items falls was actually really difficult, and I was still thinking about it even afterward because of how different every one else's answers were. 
 
 ## Week 2
 

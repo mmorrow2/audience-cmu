@@ -7,7 +7,7 @@
 ## Week 1
 
 What an exciting start to my LAST mini of graduate school! I can already tell I am going to enjoy this class very much.
-Something I want to touch on more is the idea of "liveness." The class exercise where we created a scale of where certain items falls was actually really difficult, and I was still thinking about it even afterward because of how different every one else's answers were. 
+Something I want to touch on more is the idea of "liveness." The class exercise where we created a scale of where certain items falls was actually really difficult, and I was still thinking about it even afterward because of how different every one else's answers were. We use our own experiences to help determine this scale, and everyone has different experiences. It doesn't help that the theory of liveness is not cut-and-dry, that it is a spectrum.
 
 ## Week 2
 
@@ -28,3 +28,9 @@ The second topic we talked about was the Arc of Engagement. Here's a handy pictu
 Something I wanted to cirlce back to was the hypothesis that was posed on whether or not the arc is different for patrons for popular vs. traditional forms of art. I think it is different. And the main example I have as evidence is digital art and public art. There is not a "build up" or "intense preparation" phase, especially when you are just scrolling through social media or walking around. There is still the middle to end of the arc, but no front end.
 
 ## Week 3
+So, I want Michele to be my best friend. She exudes so much energy and happiness and rainbows- anyway, I loved having her in class. She was a joy, and it was fascinating to see what we were learning in class directly applied to an arts organization, from someone actually running the organization. Her entire workshop and the "Some Assembly Required" performances are so engaging, and really brings out the power of what can happen when people are invited to engage with the art outside of what they are used to. Actually, I plan on talking with her and seeing if I can adapt the workshop we did in class for my own uses in my pageant world, because it is such a powerful tool. 
+We also talked about the Experience Economy this week, and that was a fascinating topic to read about. It's interesting to see how things have evolved over the years as society has progressed with technology and other social progressions. The reading also started off with an annecdote about cake, so I was instantly hooked. Anyway, like Chris, I also thought of Meow Wolf when trying to put the Realms of Experience into context. Meow Wolf is an example of an organization that fits in the "escapist" quadrant of this graph:
+![Screenshot (360)](https://user-images.githubusercontent.com/98050576/161166319-5d038a6d-5b4e-4da1-b4a1-14ff12ac5328.png)
+Something like going to the movies or to a musical would fall into "entertainment," going to a museum would fall into "educational," and something like the traveling Candytopia exhibit would be "esthetic." The four poles are ranges of how people choose to engage, and how the organizations I listed traditionally invited that engagement. 
+
+## Week 4

@@ -18,7 +18,7 @@
 ## Arc of Engagement
 
 ### The Social Media “Magic”: Virtually Engaging Visitors during COVID-19 Temporary Closures
-[Link to article](file:///C:/Users/thegr/Downloads/admsci-11-00053.pdf)
+[Link to article](https://www.mdpi.com/2076-3387/11/2/53)
 
 ### Nurturing Citizen Critics to Engage Audiences
 [Link to article](https://galachoruses.org/sites/default/files/Barun-Making_Sense_of_Audience_Engagement.pdf)

@@ -40,6 +40,9 @@
 
 ## Relevancy
 
+### Made in L.A. 2020 from the Hammer Museum of Art
+[Link to website](https://hammer.ucla.edu/exhibitions/2021/made-la-2020-version)
+
 ## Experience
 
 ## Immersion

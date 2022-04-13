@@ -33,4 +33,6 @@ We also talked about the Experience Economy this week, and that was a fascinatin
 ![Screenshot (360)](https://user-images.githubusercontent.com/98050576/161166319-5d038a6d-5b4e-4da1-b4a1-14ff12ac5328.png)
 Something like going to the movies or to a musical would fall into "entertainment," going to a museum would fall into "educational," and something like the traveling Candytopia exhibit would be "esthetic." The four poles are ranges of how people choose to engage, and how the organizations I listed traditionally invited that engagement. 
 
-## Week 4
+## Week 4 (Carnival)
+
+## Week 5

@@ -35,4 +35,8 @@ Something like going to the movies or to a musical would fall into "entertainmen
 
 ## Week 4 (Carnival)
 
-## Week 5
+## Week 5 (Sick)
+
+## Week 6
+I really enjoyed being able to dust off the "Art of Relevancy" book that we are reading. I had picked it up for free at WQED when I worked with Steeltown, and looking back, I find it incredibly ironic that it was there, because that is an institution that wouldn't know relevancy if it hit them in the face. Anyway, like I said, I am grateful for the opportunity.
+Some of my biggest takeaways was the ideas that surrounded the "insiders" versus "outsiders." 

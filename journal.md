@@ -33,10 +33,17 @@ We also talked about the Experience Economy this week, and that was a fascinatin
 ![Screenshot (360)](https://user-images.githubusercontent.com/98050576/161166319-5d038a6d-5b4e-4da1-b4a1-14ff12ac5328.png)
 Something like going to the movies or to a musical would fall into "entertainment," going to a museum would fall into "educational," and something like the traveling Candytopia exhibit would be "esthetic." The four poles are ranges of how people choose to engage, and how the organizations I listed traditionally invited that engagement. 
 
-## Week 4 (Carnival)
+## Week 4
+This week we only had one class due to Carnival, but we did have time to wrap up discussions based on the Experience Economy. I really enjoyed how we were able to expand upon the theory to include the present and how it manifests now. I really like being able to talk about front-facing people in organizations, and how organizations really should pay more attention to their training. I know that most ushers are volunteers, but they are still spokespeople for your organization. They should not be missed when it comes to conveying the mission and values of your organization. There is a story that I remember Brett telling us in another class, and its that when she worked at a theatre (I think it was Imagination Stage), someone comented that every person who worked there seemed happy and like they wanted to be there. That should be the norm. Every time someone walks into the museum, into the theatre, into the concert hall, they should be greeted by people who are HAPPY TO BE THERE! 
+In addition, I'm glad to see the push for "omnichannel" touchpoints. I think a lot of organizations are too narrow in their scope of who they can partner with in terms of advertising their season or extra tickets for their show. I can see myself really pushing these concepts in future posistions I work in because it is so, so important.
 
-## Week 5 (Sick)
+## Week 5
+
 
 ## Week 6
 I really enjoyed being able to dust off the "Art of Relevancy" book that we are reading. I had picked it up for free at WQED when I worked with Steeltown, and looking back, I find it incredibly ironic that it was there, because that is an institution that wouldn't know relevancy if it hit them in the face. Anyway, like I said, I am grateful for the opportunity.
-Some of my biggest takeaways was the ideas that surrounded the "insiders" versus "outsiders." 
+First, I am going to link Nina Simon's TEDx talk here so I can have it for reference: [https://www.youtube.com/watch?v=NTih-l739w4](https://www.youtube.com/watch?v=NTih-l739w4)
+My biggest takeaway was the idea of the "insiders" versus "outsiders" and how that manifested into doors and keys.
+
+## Week 7
+A lot of my takeways from both the lecture and from our guest speaker was the importance of evaluation. 

@@ -43,8 +43,11 @@ This week we only had one class due to Carnival, but we did have time to wrap up
 In addition, I'm glad to see the push for "omnichannel" touchpoints. I think a lot of organizations are too narrow in their scope of who they can partner with in terms of advertising their season or extra tickets for their show. I can see myself really pushing these concepts in future posistions I work in because it is so, so important.
 
 ## Week 5 
-### Immersion and UXD
+### UXD and Immersion
+There are many organizations and institutions that I have either worked with personally or have heard about from colleagues that are unwilling to accept new ideas and are therefore hurting themselves due to it. The Rainforest Café is an example of an organization that never changed or updated their expereince, and ended up losing a massive amount of their audiences. However, for things to get better, there has to be continual work towards it. Something that should be remembered is that change cannot happen overnight. I might find myself coming into an organization at a level that I don't think could warrant much change, but that does not mean incremental things could not start taking place. That does not mean that I couldn't bring my handy-dandy toolkit into a meeting and show them how important these things are and what they look like when actually implemented. 
+When looking at User Experience Design, the [IDEO website](https://designthinking.ideo.com/) talks extensively about keeping people at the center of design thinking. Whether that is your audience or the people who run the organization, if the choices you make as a manager keep both the design thinking principals (ideation, inspiration, implementation) and the people at the center, the company could move toward design thinking without even realizing it.
 
+The second topic we talked about during this week is the idea of Immersion. 
 
 
 ## Week 6

@@ -41,16 +41,20 @@
 [Link to website](https://hammer.ucla.edu/exhibitions/2021/made-la-2020-version)
 
 ### 24th Street Theatre
-[Link to Article](https://drive.google.com/file/d/1w7tSIm7fa6bMNosJHJcpRh2459jdb3Qq/view)
--Page 16
+[Link to Article](https://drive.google.com/file/d/1w7tSIm7fa6bMNosJHJcpRh2459jdb3Qq/view) Page 16
 
 ## Experience
-[A High Touch Theatrical Experience for a High Tech World](https://drive.google.com/file/d/1VH9IZLeoNA6tns8-c8z1g6GRCsej6dbb/view)
 
-[A Bold Experiment in Digital Theatre With Google+](https://drive.google.com/file/d/1Vta9tXo4CKLtxvOREZFf9Hon97taqTFw/view) 
+### A High Touch Theatrical Experience for a High Tech World
+[Link to Article](https://drive.google.com/file/d/1VH9IZLeoNA6tns8-c8z1g6GRCsej6dbb/view)
+
+### A Bold Experiment in Digital Theatre With Google+
+[Link to Article](https://drive.google.com/file/d/1Vta9tXo4CKLtxvOREZFf9Hon97taqTFw/view) 
 
 ## Immersion
 
-[Entrepeneurs Bet Big on Immersive Art Despite COVID-19](https://drive.google.com/file/d/18wgBI7AUMtAhRAU1SMR_tNYZ9iJVxVQ3/view)
+### Entrepeneurs Bet Big on Immersive Art Despite COVID-19
+[Link to Article](https://drive.google.com/file/d/18wgBI7AUMtAhRAU1SMR_tNYZ9iJVxVQ3/view)
 
-[Immersive theatres changing how we experience film](https://drive.google.com/file/d/1wpygCNggC_34rfuwHxtkIswcH6-OhYhl/view)
+### Immersive theatres changing how we experience film
+[Link to Article](https://drive.google.com/file/d/1wpygCNggC_34rfuwHxtkIswcH6-OhYhl/view)

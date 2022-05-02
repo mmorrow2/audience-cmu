@@ -25,9 +25,6 @@
 
 ## Arc of Engagement
 
-### The Social Media “Magic”: Virtually Engaging Visitors during COVID-19 Temporary Closures
-[Link to article](https://www.mdpi.com/2076-3387/11/2/53) 
-
 ### Nurturing Citizen Critics to Engage Audiences
 [Link to article](https://galachoruses.org/sites/default/files/Barun-Making_Sense_of_Audience_Engagement.pdf) Page 54
 - Critical writing makes the Post-processing and impact echo sections longer due to the nature of critical writing. You have to think deeply about something, you're more likely to remember it. 
@@ -43,9 +40,6 @@
 ### Made in L.A. 2020 from the Hammer Museum of Art
 [Link to website](https://hammer.ucla.edu/exhibitions/2021/made-la-2020-version)
 
-### "Philip Guston Now" Art Tour
-[Link to website](https://www.nga.gov/press/exh/5235.html)
-
 ### 24th Street Theatre
 [Link to Article](https://drive.google.com/file/d/1w7tSIm7fa6bMNosJHJcpRh2459jdb3Qq/view)
 -Page 16
@@ -56,7 +50,6 @@
 [A Bold Experiment in Digital Theatre With Google+](https://drive.google.com/file/d/1Vta9tXo4CKLtxvOREZFf9Hon97taqTFw/view) 
 
 ## Immersion
-[Invisible Cities: Is this the Opera of the Future?](https://drive.google.com/file/d/1t9XALfkPxPFCBdg9fj3xmMZhpZidcw4Z/view)
 
 [Entrepeneurs Bet Big on Immersive Art Despite COVID-19](https://drive.google.com/file/d/18wgBI7AUMtAhRAU1SMR_tNYZ9iJVxVQ3/view)
 

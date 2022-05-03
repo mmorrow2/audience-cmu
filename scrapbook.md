@@ -17,11 +17,13 @@
 
 ### How Meow Wolf Powers Exploration and Discovery
 [Link to article](https://info.hotelspacesevent.com/blog/how-meow-wolf-powers-exploration-and-discovery)
-- This article has a section on agency, and that is the element of Meow Wolf that plays heavily into the idea that it could operate as an example of a third space.
-- "Meow Wolf attractions succeed because they create environments that allow for people to follow their whims. There are no maps, no clear instructions on what to do. Just explore and discover on your own terms. That’s it." There is no expectation to do anything a certain way. Also, you could go through numerous times and never really see the same thing twice. 
+- This article has a section on agency, and that is the element of Meow Wolf that plays heavily into the idea that it could operate as an example of a third space. Since people are able to walk around at their leisure, explore at their own will, stop and talk and engage with something or someone whenever they feel like it. 
+- "Meow Wolf attractions succeed because they create environments that allow for people to follow their whims. There are no maps, no clear instructions on what to do. Just explore and discover on your own terms. That’s it." There is no expectation to do anything a certain way. Also, you could go through numerous times and never really see the same thing twice, which could bring in "regulars." 
+- Having the ability to have a unique experience for each person, and allow them to find their own journey through something is an element of this that I will be taking with me when thinking about the creation of third places in my career. 
 
 ### Using Interactive Activities to Enhance Engagement
 [Link to article](https://galachoruses.org/sites/default/files/Barun-Making_Sense_of_Audience_Engagement.pdf) Page 73
+- In this particular case study, there is a lot in interactivity between the audience and the art. 
 
 ## Arc of Engagement
 

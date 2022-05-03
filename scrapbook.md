@@ -57,16 +57,24 @@
 ## Immersion
 
 ### Entrepeneurs Bet Big on Immersive Art Despite COVID-19
-[Link to Article](https://drive.google.com/file/d/18wgBI7AUMtAhRAU1SMR_tNYZ9iJVxVQ3/view)
+[Link to Article](https://drive.google.com/file/d/18wgBI7AUMtAhRAU1SMR_tNYZ9iJVxVQ3/view) 
+- This case study talks about how despite the COVID pandemic, people are still investing in art installations and museums that prioritze immersion. Examples like the "Rain Room" and Meow Wolf are given, and it is easy to see why people are still wanting to go to these places and why investors are willing to risk their assets to create more of it: People love new experiences. Take the "Rain Room" - being able to walk into a room, that's raining, yet everywhere you step, it stops above you. It's incredible. You can smell, feel, hear, see, and even taste the water that is completely surrounding you. 
+- For a space like Meow Wolf where you are encouraged to break the norms of traditonal musuems and actually TOUCH things, it is incredibly exciting. Added on to the fact that there is a mystery surrounding the museum, it becomes an engagement that is not easily forgotten or replicated. 
+- One of the main things to take away from this case study is that art museums and other immersive experiences should really look to the people who are in their community, and not just tourists. The people who live in your town, or your county, want to experience art and culture just as much as the people who are visiting. But, it is up to us to remind them that we are here. 
 
 ### Immersive theatres changing how we experience film
 [Link to Article](https://drive.google.com/file/d/1wpygCNggC_34rfuwHxtkIswcH6-OhYhl/view)
-
+- This has a lot to do with trying to get the audience to come be a part of the process of making art, instead of just experiencing the finished product. It is a very fine line to walk down, because some people do not want to see the process, they are content with not knowing the details of how something was made. Some people like the mystery, while others want to dive deep and learn everything they can about a piece of art they are seeing. I think it is important to remember that not everyone is interested in the new ideas that can be presented.
 
 ## Relevancy
 
 ### Made in L.A. 2020 from the Hammer Museum of Art
-[Link to website](https://hammer.ucla.edu/exhibitions/2021/made-la-2020-version)
+[Link to Website](https://hammer.ucla.edu/exhibitions/2021/made-la-2020-version)
+- I brought this particuar case study into my toolkit because I found it interesting how the curators of this biennial exhibit had two different exhibits that mirrored each other in two different locations. The exhibit, "Made In LA" was a celebration of Los Angeles artists and the Hammer Museum of Art partnered with the Huntington Library to have a larger impact.
+- The Hammer Museum is in Los Angeles, close to the Beverly Hill neighborhood, and down the street from the Getty Museum. The Huntington Library, Art Gallery, and Botanical Gardens is 30 minutes East in Pasadena. They have a very different set of audience members. However, with this particular show, they are showcasing artists who are from, live, and work in Los Angeles and the surrounding neighborhoods. By expanding the reach and going to a different venue, they are actively inviting more people to come in and see what they normally do in their museum. 
+- I think the mirrored exhibits is an awesome idea, because I would want to go to both rooms to see how they differ and how they are the same. I plan on using that idea because it means that people are more likly to want to see the full exhibit if there is an obvious connection. 
 
 ### 24th Street Theatre
 [Link to Article](https://drive.google.com/file/d/1w7tSIm7fa6bMNosJHJcpRh2459jdb3Qq/view) Page 16
+- This theatre opened doors by bringing theatre to low-income adults who would not otherwise be able to pay for acting classes or be able to purchase a ticket to a show. By taking the time to meet with them and create an entire play together, they brought in relevancy. 24th Street Theatre was willing to meet their "outsiders" where they were, especially when they met hardships since these were working class adults and not professional actors. 
+- Engaing the community is important. However, being able to follow through and not give up when things do not go as planned is how to actually build a community. 
